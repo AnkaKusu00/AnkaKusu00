@@ -1,4 +1,4 @@
-Kendini geliştirmeyi seven,
+Kendini geliştirmeye çabalayan,
 Takım çalışmasına inanan ve ayak uyduran,
-Öğrenmeye ve yeni bilgilere ulasmaya cabayalan, 
-Çalışmayı seven biriyim. 
+Öğrenmeye ve yeni bilgilere ulasmaya gayret eden,
+Çalışmaktan usanmayan biriyim. 
